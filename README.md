@@ -1,1 +1,1 @@
-# Group9 - Nahom Kiros, Kaleb Abay, Yihui Lin, Dylan H. Patrick
+# Group9 - Nahom Kiros, Kaleb Abay, Yihui Lin, Dylan H., Patrick
